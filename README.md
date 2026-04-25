@@ -1,7 +1,9 @@
 ## Hi there 👋
 
 lost my old github account\
-rip my child😿 
+rip my child😿 \
+
+FU
 <!--
 **ladyfarquaadd/ladyfarquaadd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
