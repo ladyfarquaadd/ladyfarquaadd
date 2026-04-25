@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 lost my old github account\
-rip my child😿 \
+rip my child😿 
 
 FU
 <!--
